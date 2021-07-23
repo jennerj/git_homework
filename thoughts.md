@@ -5,6 +5,5 @@
   **Shoutout to my fiance who has been incredibly supportive of me when I decided to go to Turing.**
 
   Pizza is delicious
-  It is so good
+
   Too bad I cant drink it
-  
